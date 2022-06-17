@@ -1,5 +1,5 @@
 Software, software testing, data: I work on database, I created a chat website using php at university and worked on Excel and Word.
-
+I'm top of both class and school, high honor student
 C, HTML5, Javascript, PHP, ASP know about and am interested.
 Database: MySQL, MSAccess management and design.
 
